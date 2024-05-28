@@ -1,0 +1,1 @@
+Technical assets associated with MRN
